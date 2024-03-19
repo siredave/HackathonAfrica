@@ -1,1 +1,1 @@
-Thank you hackathon africa
+Thank you hackathon for this opportunity
